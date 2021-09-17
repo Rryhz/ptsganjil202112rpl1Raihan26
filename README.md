@@ -1,0 +1,1 @@
+# ptsganjil202112rpl1Raihan26
